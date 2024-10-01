@@ -1,5 +1,5 @@
 
-# Free RDP 6 HOURS
+# Free RDP 1 HOUR
 
 
 
